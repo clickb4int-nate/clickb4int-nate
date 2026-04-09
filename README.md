@@ -1,7 +1,7 @@
 ***
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=clickb4int-nate&color=9758FF&label=bats) 
+![](https://komarev.com/ghpvc/?username=clickb4int-nate&color=9758FF&label=views) 
 
 ⁘ ͜　　nate﹔vampiric﹒poc　𓋹　21　::　𝗍𝗁𝖾𝗒 / him / she　  ͜ ⁘
 
