@@ -1,6 +1,6 @@
 <div align="center">
 
- <img src="https://64.media.tumblr.com/1bbaa1139677d73e74287f093e57c654/7d965817f5c500c8-90/s2048x3072/692e9626913159e38ea714ce809b27d8f748763f.pnj" width="35%">
+ <img src="https://64.media.tumblr.com/1bbaa1139677d73e74287f093e57c654/7d965817f5c500c8-90/s2048x3072/692e9626913159e38ea714ce809b27d8f748763f.pnj" width="45%">
 
 ![](https://komarev.com/ghpvc/?username=clickb4int-nate&color=9758FF&label=views) 
 
@@ -9,8 +9,8 @@
 ⋅ 　𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　.　𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻　. 𝗐2𝗂　 ⋅　
 
 
-  <img src="https://i.pinimg.com/originals/56/1a/0b/561a0bc93788466351c104f30b5232b7.gif" width="35%">
+  <img src="https://i.pinimg.com/originals/56/1a/0b/561a0bc93788466351c104f30b5232b7.gif" width="45%">
 
 [art profilo](https://cara.app/v4mpirich3llhound)ㅤ[tiktok](https://www.tiktok.com/@v4mpiric.h3llhound)
 
- <img src="https://64.media.tumblr.com/09510af14635ea09632b63968f0049ae/7d965817f5c500c8-f8/s2048x3072/55b3b3d10bd7381a82b1eaf543cd2758dcfeb64d.pnj" width="35%">
+ <img src="https://64.media.tumblr.com/09510af14635ea09632b63968f0049ae/7d965817f5c500c8-f8/s2048x3072/55b3b3d10bd7381a82b1eaf543cd2758dcfeb64d.pnj" width="45%">
