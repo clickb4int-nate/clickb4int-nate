@@ -13,4 +13,4 @@
 
 [art profilo](https://cara.app/v4mpirich3llhound)ㅤ[tiktok](https://www.tiktok.com/@v4mpiric.h3llhound)
 
- <img src="https://64.media.tumblr.com/09510af14635ea09632b63968f0049ae/7d965817f5c500c8-f8/s2048x3072/55b3b3d10bd7381a82b1eaf543cd2758dcfeb64d.pnj" width="45%">
+ <img src="https://64.media.tumblr.com/e5d8850a771536f99a6774a45271807b/5ba552015d2f2868-8b/s2048x3072/7261ba2f9452b00bbab8af4ecdd49d439634a5c9.pnj" width="45%">
