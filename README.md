@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=clickb4int-nate&color=9758FF&label=views) 
 
-⁘ ͜　　nate﹔vampiric﹒poc　𓋹　21　::　𝗍𝗁𝖾𝗒 / him / she　  ͜ ⁘
+⁘ ͜　vampiric﹒poc　𓋹　21　::　𝗍𝗁𝖾𝗒 / him / she　  ͜ ⁘
 
 　𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒!　.　𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻　. 𝗐2𝗂  .  don't copy!!
 
