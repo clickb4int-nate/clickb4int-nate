@@ -11,6 +11,6 @@
 
   <img src="https://i.pinimg.com/originals/56/1a/0b/561a0bc93788466351c104f30b5232b7.gif" width="45%">
 
-[art profilo](https://cara.app/v4mpirich3llhound)ㅤ[tiktok](https://www.tiktok.com/@v4mpiric.h3llhound)
+[art profilo](https://cara.app/v4mpirich3llhound)ㅤ[tiktok](https://www.tiktok.com/@v4mpiric.h3llhound) [strawpage](https://v4mpiric.straw.page/)
 
  <img src="https://64.media.tumblr.com/e5d8850a771536f99a6774a45271807b/5ba552015d2f2868-8b/s2048x3072/7261ba2f9452b00bbab8af4ecdd49d439634a5c9.pnj" width="45%">
